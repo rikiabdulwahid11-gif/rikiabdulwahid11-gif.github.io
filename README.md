@@ -1,1 +1,0 @@
-# rikiabdulwahid11-gif.github.io
